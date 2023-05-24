@@ -21,7 +21,7 @@
 
 - 🌱 I spend my days on the web learning and sharing information across the globe.
 
-- 📫 Feel free to contact me **dhruv.moradiya365@gmail.com**
+- 📫 Feel free to contact me **dhruv.moradiya56@gmail.com**
 
 - 👨‍💻 Currently pursuing IT engineering !
 
