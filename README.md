@@ -27,7 +27,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/dhruv-moradiya-336197210/](https://www.linkedin.com/in/dhruv-moradiya-336197210/)
 
-- ⚡ Fun fact **"I love to Pressing Buttons"**
+- ⚡ Fun fact **"I love to Pressing Keys"**
 
 ## 🌐 Languages and Tools :
 <p align="left">
